@@ -118,6 +118,6 @@ A collection of learning material and practical projects developed during my Flu
 
 ## Let's Connect
 
-**LinkedIn:** [Eman Irfan Ahmed](https://www.linkedin.com/in/eman-irfan-ahmed-185505)
+**LinkedIn:** [Eman Irfan Ahmed](https://www.linkedin.com/in/eman-irfan-ahmed-185505258?utm_source=share_via&utm_content=profile&utm_medium=member_android)
 
 **GitHub:** [@emanirfan2005](https://github.com/emanirfan2005)
